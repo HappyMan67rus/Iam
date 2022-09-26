@@ -4,7 +4,8 @@
 > *Albert Einstein*
 
 **When I'm hungry i look like this**
-![](https://mobimg.b-cdn.net/v3/fetch/5a/5acd51f7f7f2927603e4cb18cbda3db9.jpeg)
+
+![](https://i.pinimg.com/originals/55/c4/87/55c4875f3f5d779031fb5cf026925bb4.jpg)
 
 ***
 
